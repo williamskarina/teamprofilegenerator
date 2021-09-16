@@ -172,3 +172,8 @@ You are required to submit the following for review:
 
 ---
 © 2021 Trilogy Education Services, LLC, a 2U, Inc. brand. Confidential and Proprietary. All Rights Reserved.
+
+https://drive.google.com/file/d/1_rU-BdlCt63gtMluphvxpWR2qHvCcuaK/view
+
+<img width="1440" alt="Screen Shot 2021-09-11 at 7 05 49 PM" src="https://user-images.githubusercontent.com/84817902/132969564-9e6c59b2-25b8-4c4c-9a63-a855d7f12329.png">
+
